@@ -1,1 +1,1 @@
-# maganthomascopland.github.io
+maganthomascopland.github.io
